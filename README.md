@@ -1,0 +1,1 @@
+# lesson_32_amaliy2
